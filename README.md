@@ -1,2 +1,3 @@
 # randon-rep_hello
 no princi...
+I am a master's in engineering, who is passinate to collaborate with extremally talented people to create products that will impact the daily routine of 1,000,000s of people around the world. 
